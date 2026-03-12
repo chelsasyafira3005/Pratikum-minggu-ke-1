@@ -1,0 +1,1 @@
+# Pratikum-minggu-ke-1
